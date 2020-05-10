@@ -5,11 +5,6 @@ Experienced Consultant with a demonstrated history of working with different typ
 
 &nbsp;
 
-### Area of Interests
-- 
-
-&nbsp;
-
 ### Work Experience
 -	Senior Associate Consultant, **KPMG Thailand**
 -	Executive Assistant to Chief People Officer, **Ananda Development Public Company Limited.**
