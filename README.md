@@ -23,7 +23,7 @@ Experienced Consultant with a demonstrated history of working with different typ
 &nbsp;
 
 <p align="center">
-  <a href="https://th.linkedin.com/in/suwapatch-drabyaya-791a08172"><img width="50" height="50" src="/images/linkedin.png" alt="linkedin" /></a>
+  <a href="https://th.linkedin.com/in/suwapatch-drabyaya-791a08172"><img width="50" height="50" src="/images/linkedin-36-151077.png" alt="linkedin" /></a>
 </p>
 
 
